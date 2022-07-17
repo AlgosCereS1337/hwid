@@ -1,3 +1,3 @@
 # HWİD PROTECT
 
-Connectorss.
+Major bigman.
