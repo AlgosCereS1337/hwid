@@ -1,3 +1,0 @@
-# HWİD PROTECT
-
-Major bigman.
